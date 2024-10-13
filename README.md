@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on None
 - 📫 How to reach me ge15502424180@gmail.com
-- 😄 Pronouns: 咕咕咕
+- 😄 Pronouns: Coo coo coo
 - ⚡ Fun fact: I like DOORS
 
 <!---
