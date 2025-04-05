@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HHShulk
 - 👀 I’m interested in Github
-- 🌱 I’m currently learning Python
+- 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on None
 - 📫 How to reach me ge15502424180@gmail.com
 - 😄 Pronouns: Coo coo coo
